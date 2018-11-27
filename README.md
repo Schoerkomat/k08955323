@@ -12,3 +12,6 @@ Tja, es fiel doch auf und dann folgte ein unrühmlicher Versuch, die Buchstaben 
 * L für das Obstgeschäft Leopold
 
 Tja, leider gibt es in meiner schönen Heimatstadt keine Erste Bank, sondern eine Oberbank, sonst wäre die Erläuterung für die Buchstaben ja schon beinahe glaubwürdig gewesen.
+
+So viel Publicity hatte Steyr schon lange nicht mehr. Nun gibt es auch schon viele, nicht ernst gemeinte, Ratschläge für eine neue Pflasterung:
+![Neue Pflasterung Steyr](NeuePflasterungSteyr.jpg)
