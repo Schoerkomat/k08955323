@@ -1,4 +1,5 @@
 Steyr ist eine Stadt in Oberösterreich und nach Linz und Wels die drittgrößte Stadt des Bundeslandes und die zwölftgrößte Stadt Österreichs. Die Statutarstadt am Zusammenfluss von Enns und Steyr ist Sitz der Bezirkshauptmannschaft des Bezirkes Steyr-Land.
+
 Bis vor kurzem war einer der berühmtesten Bürger der Neuzeit Franz Josef Hartlauer.
 Mittlerweile hat \- zumindest kurzfristig \- Franz\-Josef Hingerl Herrn Hartlauer in der öffentlichen Wahrnehmung den Rang abgelaufen. Es ist jener schlitzohrige Magistratsbedienstete, der \- ohne, daß es wochenlang aufgefallen wäre -\ seine Initialen in das Steyrer Pflaster verewigt hatte.
 Tja, es fiel doch auf und dann folgte ein unrühmlicher Versuch, die Buchstaben mit den Anfangsbuchstaben von Geschäften zu rechtfertigen:
